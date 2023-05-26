@@ -22,6 +22,4 @@
 https://github.com/hkHowToGetACard/ThreePieces-of-black-technology/assets/134081855/ebbb6bd9-25fd-4ac2-b5bc-f2028766b286
 
 
-## 三、如何生成过港小票：
 
-暂时不公开，后续提供生成地址
